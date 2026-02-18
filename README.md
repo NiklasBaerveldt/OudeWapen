@@ -1,2 +1,2 @@
 # OudeWapen
-Opas en Jan Willems WapenVersameling
+Opas en Jan Willems wapenversameling
